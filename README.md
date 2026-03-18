@@ -1,2 +1,3 @@
 # skeleton-repo
 repository what based on plenty usecase before planned and foratted the actual SKELETON repo...
+w7l7.ab@gmail.com HZ68xU8R%#xKb5Mba9
